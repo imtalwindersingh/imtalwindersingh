@@ -1,6 +1,6 @@
 # 🚀 Talwinder Singh
 
-📱 **Senior App Developer**  
+📱 **Senior Software Engineer |  Full-Stack & Mobile**  
 📧 [Email me](mailto:imtalwindersingh@gmail.com)  
 🔗 [LinkedIn Profile](https://www.linkedin.com/in/talwindergrewal/)  
 📞 **Call:** (+44) 7768238739  
